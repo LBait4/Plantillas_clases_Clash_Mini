@@ -1,0 +1,1 @@
+# Plantillas_clases_Clash_Mini
